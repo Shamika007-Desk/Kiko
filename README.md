@@ -9,3 +9,4 @@ I'm not trying to be a web developer—I just wanted to see this idea work, so I
 Send to your lover too, no responsibility for consequences though.😏
 
 Feel free to use the link if you need it.
+https://shamika007-desk.github.io/Kiko/
